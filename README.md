@@ -1,4 +1,4 @@
-welcome to my github you fucking loser
+erm
 
 <!---
 tobungle/tobungle is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
